@@ -1,3 +1,1 @@
-VERY IMPORTANT THINGS TO NOT MESS UP
-
-THE CODE TO SAVE THE WORLD
+very important things to not mess up
